@@ -56,9 +56,6 @@
 
 ---
 
-## 🌐 **Connect With Me**
-
-💼🔗 [LinkedIn](www.linkedin.com/in/dewmini-subasinghe-b5bb67290)
 
 
 ### ✦ *Technology is what I build. Creativity is how I make it meaningful.*
